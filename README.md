@@ -6,4 +6,5 @@ About what my heart actually say
 
 Stay awake while I'm drowing on my thoughts
 Sometimes a happines is just a happiness
+I've never been enjoying' my serenity
 
