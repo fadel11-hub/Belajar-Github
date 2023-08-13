@@ -1,17 +1,17 @@
 Kita akan mempelajari cara penggunaan Github
 
-Lagu Somebody's Pleasure
-I've beem so busy, ignoring and hiding
-About what my heart actually say 
+<br>Lagu Somebody's Pleasure
+<br>I've beem so busy, ignoring and hiding
+<br>About what my heart actually say 
 
-Stay awake while I'm drowing on my thoughts
+<br>Stay awake while I'm drowing on my thoughts
 
-Sometimes a happines is just a happiness
-I've never been enjoying' my serenity
-Even if I've got a lot of company
-
+<br>Sometimes a happines is just a happiness
+<br>I've never been enjoying' my serenity
+<br>Even if I've got a lot of company
+<br>
 That makes me happy
-soul try to figure it out
+<br>soul try to figure it out
 
 
 
