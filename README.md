@@ -11,6 +11,7 @@ I've never been enjoying' my serenity
 Even if I've got a lot of company
 
 That makes me happy
+soul try to figure it out
 
 
 
