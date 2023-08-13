@@ -8,3 +8,4 @@ Stay awake while I'm drowing on my thoughts
 Sometimes a happines is just a happiness
 I've never been enjoying' my serenity
 
+Even if I've got a lot of company
